@@ -1,4 +1,4 @@
-# createafauxpas
+# antegnostic
 <p align="center"> 
 <img src=https://files.catbox.moe/u6n662.png>
 </p>
