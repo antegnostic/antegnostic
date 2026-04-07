@@ -13,3 +13,6 @@ talk to me about homestuck, classpecting, dirkjake,<br> danganronpa2, komahina, 
 </p>
 
 <img src=https://files.catbox.moe/7bf0jd.gif><br>
+<p align="center">
+Does anyone else think about nagito komaeda and feel<br>really bad or is it just me and that fuckass reserve course student
+</p>
