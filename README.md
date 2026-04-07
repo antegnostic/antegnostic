@@ -1,4 +1,4 @@
-# antegnostic
+# 平凡で退屈で
 <p align="center"> 
 <img src=https://files.catbox.moe/u6n662.png>
 </p>
