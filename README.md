@@ -12,7 +12,7 @@ talk to me about homestuck, classpecting, dirkjake,<br> danganronpa2, komahina, 
 [ao3](https://archiveofourown.org/users/anteGnostic) && [twt](https://twitter.com/antegnostic)
 </p>
 
-<img src=https://imgur.com/a/GUfiCD9><br>
+<img src="https://imgur.com/a/GUfiCD9"><br>
 <p align="center">
 Does anyone else think about nagito komaeda and feel<br>really bad or is it just me and that fuckass reserve course student
 </p>
