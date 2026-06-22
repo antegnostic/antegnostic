@@ -5,7 +5,7 @@
 <p align="center">
 midwestern freak, artist && occasional author<br>i'm still trying to learn how 2 code so this is kinda messy LOL</br>
 <p align="center">
-talk to me about homestuck, classpecting, dirkjake,<br> danganronpa2, komahina, hajime hinata, drawing, philosophy,<br> car seat headrest, crywank, the group chat, isaacwhy, etc
+talk to me about homestuck, classpecting, dirkjake,<br> danganronpa2, komahina, hajime hinata, drawing, philosophy,<br> car seat headrest, crywank, the group chat, isaacwhy,<br>bungou stray dogs, (shin) soukoku, etc
 
 <div align="center">
 
