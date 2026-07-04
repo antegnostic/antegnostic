@@ -3,7 +3,8 @@
 <img src=https://files.catbox.moe/u6n662.png>
 </p>
 <p align="center">
-midwestern freak, artist && occasional author<br>i'm still trying to learn how 2 code so this is kinda messy LOL</br>
+midwestern freak, artist && occasional author<br>i'm still trying to learn how 2 code so this is kinda messy LOL
+<p align="center">interaction w/ me is great! but please don't:</br>-roleplay with me out of the blue</br>-act sexual/flirt with me even if jokingly</br>-randomly friend me if we haven't talked more than a few times</br>-talk to me if you're a minor in the 18+ server!!!</br>thank you.</br>
 <p align="center">
 talk to me about homestuck, classpecting, dirkjake,<br> danganronpa2, komahina, hajime hinata, drawing, philosophy,<br> car seat headrest, crywank, the group chat, isaacwhy,<br>bungou stray dogs, (shin) soukoku, etc
 
